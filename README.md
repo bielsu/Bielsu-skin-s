@@ -7,7 +7,7 @@
 * aristia gourmet
 # - Aristia bielsuu edit
 ![](https://media.discordapp.net/attachments/848912199287308371/915037879842009108/Screenshot_70.png?width=1209&height=676)
-# -+ Seoul v9 bielsuu
+# [-+ Seoul v9 bielsuu](https://drive.google.com/u/0/uc?export=download&confirm=yuOC&id=1SS564JW-ee_YahH-IgM4QmyK8YoZ_x7E)
 ![](https://media.discordapp.net/attachments/848912199287308371/915038725598240788/Screenshot_71.png?width=1196&height=676)
 * Quase a mesma skin da aristia porem modo cookiezi
 # bielsuu NM (old)
