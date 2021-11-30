@@ -2,6 +2,7 @@
 * Variações da skin do fieryrage e algumas ai 
 # - _NM_MouseEasy1.3 (atual)
 ![](https://media.discordapp.net/attachments/848912199287308371/915042212503486484/Screenshot_73.png?width=1214&height=676)
+* aristia gourmet
 # - Aristia bielsuu edit
 ![](https://media.discordapp.net/attachments/848912199287308371/915037879842009108/Screenshot_70.png?width=1209&height=676)
 # -+ Seoul v9 bielsuu
