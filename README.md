@@ -1,7 +1,7 @@
 # Bielsu-skin-s
 > Variações da skin do fieryrage e algumas ai 
 # [- Joie's Seoul v9 x owoTuna](https://drive.google.com/u/0/uc?export=download&confirm=F075&id=1PO2IeNKw9vF_IoStT3P3Xgtw8-PhVT6K)
-//irei adicionar uma png dps[]()
+![](https://cdn.discordapp.com/attachments/848912199287308371/917400653012275260/Screenshot_18.png)
 # [- fierymod_v8_realest_ver_two](https://cdn.discordapp.com/attachments/153594893908836352/821909838359166976/fierymod_v8_realest_ver_two.osk)
 ![](https://media.discordapp.net/attachments/848912199287308371/915044000493338685/Screenshot_74.png?width=1203&height=676)
 # [- _NM_MouseEasy1.3](https://drive.google.com/u/0/uc?id=1XrA_U_EvexW7ueRwdN6VAaGkRiajhAd8&export=download)
