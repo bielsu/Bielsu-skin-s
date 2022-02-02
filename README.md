@@ -4,9 +4,6 @@
 ![](https://cdn.discordapp.com/attachments/848912199287308371/917400653012275260/Screenshot_18.png)
 # [- fierymod_v8_realest_ver_two](https://cdn.discordapp.com/attachments/153594893908836352/821909838359166976/fierymod_v8_realest_ver_two.osk)
 ![](https://media.discordapp.net/attachments/848912199287308371/915044000493338685/Screenshot_74.png?width=1203&height=676)
-# [- _NM_MouseEasy1.3](https://drive.google.com/u/0/uc?id=1XrA_U_EvexW7ueRwdN6VAaGkRiajhAd8&export=download)
-![](https://media.discordapp.net/attachments/848912199287308371/915042212503486484/Screenshot_73.png?width=1214&height=676)
-* aristia gourmet
 # [- Aristia bielsuu edit](https://drive.google.com/u/0/uc?export=download&confirm=efIy&id=1s8OAUru9oQPhJ5kmGOee312DjJW6GbOV)
 ![](https://media.discordapp.net/attachments/848912199287308371/915037879842009108/Screenshot_70.png?width=1209&height=676)
 # [-+ Seoul v9 bielsuu](https://drive.google.com/u/0/uc?export=download&confirm=yuOC&id=1SS564JW-ee_YahH-IgM4QmyK8YoZ_x7E)
